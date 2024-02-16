@@ -1,1 +1,1 @@
-# Yaryna Mryhlotska for subject - Administration of information systems
+Yaryna Mryhlotska for subject - Administration of information systems
